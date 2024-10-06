@@ -2,4 +2,4 @@
 
 🎓 Currently a student, developing projects of my interests
 
-Only getting start
+Just getting started
